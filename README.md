@@ -2,9 +2,8 @@
 =====================
 We  already  know  about  the  bibble  about  antichrist and  beast in revelation.
 After  year  2021   to  year 2030  is  ruled  by  antichrist and  first beast according  to  bibble book of  revelation.  
-we are  redeemed now according to bibble book of  revelation.
+we are  redeemed now according to bibble book of  revelation we  are not  now  at  year 2020.
 . So this is the  Secret we  may  in  some other  year ????  this  is  done  by  King solomon  technology.
-
 so  we  call  this  as  Green century (GC). 
 
 This  is  to  manage our  world  calender to  protect ou  world from  evil powers by  wilmix  jemin j(king solomon).
